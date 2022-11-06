@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Vinhm from Vietnam
+I'm Vinh from Vietnam
 
 I was born 1996
 
